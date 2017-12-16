@@ -171,11 +171,11 @@ ___
 
 ーーーーーーENDーーーーーー
 ___
-### December 16 -  <a name="16></a>
+### December 16 -  <a name="16"></a>
 <img src="/icons/.png" width="50" height="50" />
   
 ___
-### December 17 -  <a name="17></a>
+### December 17 -  <a name="17"></a>
 <img src="/icons/.png" width="50" height="50" />
 
 
