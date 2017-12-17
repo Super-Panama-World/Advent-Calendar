@@ -7,7 +7,7 @@
 |-------------|----------|-----------|-------------|------------|----------|------------|
 |             |          |           |             |            | 1        | **2**          |
 | **3**          | 4        | 5         | 6           | 7          | 8        | **9**          |
-| **10**        | [11](#11)| [12](#12) | [13](#13)   | [14](#14)  | [15](#15)| **16**         |
+| **10**        | [11](#11)| [12](#12) | [13](#13)   | [14](#14)  | [15](#15)| [**16**](#16)         |
 | **17**        | 18       | 19        | 20          | 21         | 22       | **23**         |
 | **24**        | 25       | 26        | 27          | 28         | 29       | **30**         |
 | **31**        |          |           |             |            |          |            |
@@ -25,7 +25,7 @@
   
   [**Dec 15** - JL61449](#15)
   
-  [**Dec 16** -](#16)
+  [**Dec 16** - gargle📝🙈🙉🙊✝☦✡☪☮](#16)
   
   [**Dec 17** -](#17)
   
@@ -171,9 +171,17 @@ ___
 
 ーーーーーーENDーーーーーー
 ___
-### December 16 -  <a name="16"></a>
-<img src="/icons/.png" width="50" height="50" />
-  
+### December 16 - gargle📝🙈🙉🙊✝☦✡☪☮ <a name="16"></a>
+<img src="/icons/Gargle.jpg" width="50" height="50" />
+Almost No Language?
+
+  Do you go somewhere you want to go by train? I take train to go work because I can’t drive. When I’m taking train, I sometimes see visitors whom I seem to from abroad. I think almost foreign visitors take train because they can’t drive or don’t have car licenses in Japan.
+
+  One day, I took a train to go work as usual. The train reached at the station where my office is near.  Getting off the train, I saw a white man looking at his map seriously. I thought I couldn’t help him because I have almost no experience in speaking in English, although I didn’t know he spoke English or not. But I tried anyway. I approached him and I was close to him with no-greeting (my bad:stuck_out_tongue_closed_eyes:). And he said he wanted to go to Akihabara station to me. Luckily, train which I’ve got off would go there! And the doors of the train was open while he’s asking. So I point the train immediately with no language.  The door was closing!! It seemed impossible but he tried to rush into the train!!! He succeeded in taking the train and I was very surprised:O 
+Leaving the train, I waved to him in station. I hoped he would have went there and I will improve my speaking:)
+
+  The end.
+  Thank you for reading and sorry my bad sense but it was fun to make this.
 ___
 ### December 17 -  <a name="17"></a>
 <img src="/icons/.png" width="50" height="50" />
