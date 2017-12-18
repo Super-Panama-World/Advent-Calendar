@@ -183,7 +183,7 @@ Leaving the train, I waved to him in station. I hoped he would have went there a
   The end.
   Thank you for reading and sorry my bad sense but it was fun to make this.
 ___
-### December 17 -  <a name="17"></a>
+### December 17 - Elderflower <a name="17"></a>
 <img src="/icons/Cauli.gif" width="50" height="50" />
 
 EJLXの皆さん こんにちは、かうりです。日本語で投稿させていただきます。何について書こうか迷いに迷ったところたどり着いたのが「我が家のサンタクロース」です。
@@ -192,10 +192,10 @@ EJLXの皆さん こんにちは、かうりです。日本語で投稿させて
 
 また面白いことに、今現在15歳の妹はまだ夢を持っているようです。彼女がサンタクロースを人一倍信じているのは、あるクリスマスイブのことがきっかけです。クリスマスの日が楽しみで興奮していた妹がようやく眠りについた末、鈴の音で再び目を覚ましたようでした。その不思議な音がなにか確かめようと窓の外を見ると、シュッと赤い光が飛んでいくのが見えました。妹によると、それは赤鼻のルドルフだったらしいです。それから10年弱、今に至って（兄と私を含め）「サンタクロース」がやってくるのを毎年待っています。*
 
------------------------------------------------------------
+
 ## Week Two・第２週目
 ___
-### December 18 -  <a name="18"></a>
+### December 18 - Dassen <a name="18"></a>
 <img src="/icons/Dassen.jpg" width="50" height="50" />
 
 ___
