@@ -198,6 +198,18 @@ ___
 ### December 18 - Dassen <a name="18"></a>
 <img src="/icons/Dassen.jpg" width="50" height="50" />
 
+I have some friends who play board games together on the internet. They have different jobs, ages, a gender, and living areas. This is started 6 years ago, we also became to have relationships in real life now.
+
+We sometimes go on a travel together. For instance, we have gone to the Universal Studios Japan, Disneyland and Design Festa. Then we played some board games face to face after events.
+
+These events are planned several times in the year. And we are doing gift exchange game in every Christmas.
+
+Gift exchange game is so fun because these presents are expressed their individuality. That rule is different every year, I have got limited information about a destination in this year, and I have known only a gender. I would send to a girl the Cinderella shoe as following picture.
+
+These presents would be opened all together with talking on skype. I'm looking forward to coming to X-day.
+I wish everyone all the happiness in the world. Although It's a little bit early, Merry Christmas.
+
+---END---
 ___
 ### December 19 -  <a name="19"></a>
 <img src="/icons/.png" width="50" height="50" />
