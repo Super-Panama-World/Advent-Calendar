@@ -33,9 +33,9 @@
 
   [**Dec 18** - Dassen](#18)
   
-  [**Dec 19** - ](#19)
+  [**Dec 19** - Skyz](#19)
   
-  [**Dec 20** - ](#20)
+  [**Dec 20** - Sorana](#20)
   
   [**Dec 21** - ](#21)
   
@@ -211,12 +211,69 @@ I wish everyone all the happiness in the world. Although It's a little bit early
 
 ---END---
 ___
-### December 19 -  <a name="19"></a>
-<img src="/icons/.png" width="50" height="50" />
+### December 19 - Skyz <a name="19"></a>
+<img src="/icons/Skyz.png" width="50" height="50" />
+僕のアドベントカレンダー！
+
+昨夜、友達と期末試験の終わりをお祝いするために、鍋を食べに行った。
+親友だから、とても楽しみにしていた！
+僕達は３人だった。
+
+たくさん食べ物を注文した。食べ放題だから、全然大丈夫だった！:D
+僕はコーラを飲んで、友達は水を飲んだ。
+一番好きな食べた物は、ゴマ玉。ごま玉の中で、餡が入った。凄く美味しかった。
+いっぱい肉も食べた！牛肉や羊肉や豆腐とか食べた。
+
+牛の腹も食べてみたけど、特に好きじゃなかったから、未来に多分また注文しないかもしれない。
+僕達は全員で辛い汁を選んだ。辛い汁と言うけど、僕にとって特に辛くなかった。
+春巻きも食べて、結構美味しかった。
+友達と食べに行くのが本当に好きだ。いつも嬉しくなって、楽しい時間がある。
+アニメとか、映画とかについて話して、たくさん笑う。
+
+鍋を食べた後で、友達の家に戻った。プールをやった。
+７時にレストランに着いて、１１時半に友達の家から出かけた。
+凄く楽しかった時間があって、すぐにまたしたい！
+下の貼った写真は、昨夜の記憶だ。
+
+それは僕のアドベントカレンダーの追加だった。
+全てを読んでくれてありがとうございます！
+
+<img src="/uploads/Skyz_Food.jpg" width="256" height="192"/>
 
 ___
-### December 20 -  <a name="20"></a>
-<img src="/icons/.png" width="50" height="50" />
+### December 20 - Sorana <a name="20"></a>
+<img src="/icons/Sorana.png" width="50" height="50" />
+
+My family go to my parents house for christmas holiday every year.  
+My sister's family as well.  
+there is a cousin as same age as my second son in my younger sister’s family.  
+Then Santa Claus come my parents' house every year on christmas day.  
+The Santa Claus isn't disguised by our children’s grandfather or their father.  
+So our children belived in Santa Clause for a long time.  
+Actually he was a service of newsmen though.  
+
+however, my daughter who is high school student and my son who is junior high school student don't already believe in Santa Claus from a long time ago.  
+also my second son who is their younger brother don't already believe in it as well because his brother and a sister told him about that.
+
+But their cousin still believed in Santa claus last year. (because he doesn’t have brothers or sisters)  
+However, he finally knew the truth, so we didn't request a Santa Claus service to come our parents house this year.
+
+But he wanted to see a Santa Claus because he want to give Santa Claus a letter for appreciation.  
+because he thought this year is the last year to see Santa Claus because he is going to be a junior high school student next year.　
+
+So, we tried to request a Santa Claus service.  
+But actually the Santa Claus service was done by drawing of lots, but we didn't subscribe.  
+We worried of whether we couldn't get a Santa Claus service.  
+But a newsman have subscribed it instead of us because he was wondering why we didn't subscribe a service because we have done every year.
+
+Thanks to him, Santa Claus is going  to come our pearents house this year as well.  
+Rather this might be the best gift from Santa Claus.
+
+Anyway, my nephew will be able to give Santa Claus the last letter.   
+and at least, he came our parents' house for about 12 years.  
+Unfortunately Santa Claus won't be coming next year, but I think that the proof that the children grew.  
+That children grew up well is the best gift for me  
+thank you for reading
 
 ___
 ### December 21 -  <a name="21"></a>
