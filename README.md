@@ -41,7 +41,7 @@
   
   [**Dec 22** - newyams99 | にーも](#22)
   
-  [**Dec 23** - ](#23)
+  [**Dec 23** - 豆川うめ](#23)
     
   [**Dec 24** - ](#24)
   
@@ -318,9 +318,78 @@ ___
 ### December 22 - newyams99 | にーも <a name="22"></a>
 <img src="/icons/Newyams.jpg" width="50" height="50" />
 
+**日本語**
+
+今夜はとても寒い。
+
+ぼろしか纏っていないことを他所に、真冬の冷風は僕に逆らって容赦なく吹いている。並び立つ家々から漏れる蝋燭の鈍い灯火に照らされた街路を吹き通っていく強風が唸る中、僕は足を引きずって、弱々しく彷徨（さまよ）う。  
+ある家の窓ガラスの向こうを覗き込むと、一家団欒が目に入り、その賑々しい光景へ羨望の眼差を向けた。  
+僕には家も、家族もない。両親を亡くしてから幾星霜を経て、行き先も知らぬまま、僕は孤児（みなしご）としての侘しさを味わってきた。  
+
+
+治まらない飢餓感と戦いながら、口にする物を探すが、この努力は全く実らない。食べ物を得る術は全て雲散霧消。
+悴（かじか）んだ指先は色を失くし、まるで氷柱の様だった。夏場はゴミを漁る手があったものの、指に募る痛みが  の毒に塗（まみ）れたゴミに触れることさえさせてくれない。  
+夏の間は窃盗の対象となっていた貴族の屋敷は固く閉ざされ、その屋敷を訪ねても侮蔑的な言葉と冷遇を受けるのみ。ただの懇願しては愚弄されるの空回り。 
+
+
+こういった困難な状況でも、どうにかして越冬して生きて来れたのだ。しかし、今年は今までにない極寒が訪れ、ここ数日、何の食料も確保することに成功せず、全身が急速な衰弱の一途を辿っている。  
+蹌踉（そうろう）と歩きつつ、路地裏で一休みをしようと思った。  
+雪に倒れ込んで丁度目を瞑ると、知らない声が耳に入ってくる。 声は優しさの繊維で編まれた絹織物の様に柔らかく、不思議な治癒力が秘められていたかの様に、心を和ませた。  
+その源を確かめてみると、僕の前に佇（たたず）んでいたのは、いくつか年上の美貌のお姉さん。このお姉さんは僕を抱えて大急ぎで彼女の住まいへと駆けていき、暫くして小さな家に辿り着いた。  
+そこで待っていたのは懸念そうに座っていた彼女の両親らしき人物と、弟と思しい若い少年、そして石炭の燃え殻と焼き立てのパンの匂いが入り混じった食欲をそそる芳香。  
+両親は水を、少年は服を準備してくれた。  
+すると、お姉さんがこの人数を扶養できる筈のない、たった一斤のパンが乗せられたテーブルの下から、椅子を取り出して食事に誘ってくる。贅沢知らずの僕にとってさえ、この家族は裕福ではなかったことが明瞭であった。  
+そういった事情があったにも関わらず、僕を救ってくれたことに、心底の有難い気持ちと比較にならない感謝の言葉を口にした。お父さんもお母さんもお姉さんも弟も、みんな目を細めて僕の感謝の念を受け止めてくれた。  
+そして、お母さんはどうぞ、と言う様に手を差し出し、与えられた一切れのパンを傍若無人に貪ってしまう。  
+食事を終えると、数時間前のあの光景がいつの間にか、僕の真ん前に場所を移したことに気付いた。お父さんとお母さんの会話と笑い声の高低が交わるメロディー。ついつい燥いでしまう弟の遊びの途中にお姉さんの注意が挟まれるという、活発な断続。長年憧れていた家庭円満を享受し、僕は初めて、愉悦に浸った。  
+時は刹那の様に感じられ、漸く眠気に襲われる頃には、月はすっかり昇っていた。  
+ベッド代わりの敷き藁に寝込み、暖炉の熱を浴びながら何年か振りの熟睡が訪問した。  
+その夜の夢はぽっかぽか。  
+
+
+目を覚ますと、いつの間にかあの薄暗い路地裏に戻っていた。  
+あれは夢だったのか。。。？  
+僕の身体には、一枚の薄い毛布が掛けられていて、真横には手紙が置かれていた。そこに綴られていた文章はちらちらと舞っていた雪で掠れて読みようがなかったが、内容は分からなくたっていい。もう、飢え死にしたっていい。こんな惨めな僕でも気に掛けてくれる人間は夢の外でも存在するのだもの。  
+手紙に籠められていた感情が湧き出たのだろうか、温（ぬく）もりが身体に漂い、感涙に咽びながら残りほんの僅かの力で微笑んだ。顔は滅茶苦茶だっただろう。  
+
+
+もう一度目を閉じ、安らかな眠りに就く。  
+身体が温かい。  
+今夜はとてもとても、温かい。。。  
+
+
+ー完ー
+
+**English**
+
+Cold was the night.
+
+
+The winter wind fought against me, relentlessly blowing without a care for my state. The streets were dimly lit by the candlelights which leaked from the houses that lined the street; amid the howling of the passing gale, I feebly wandered along the path. I trod on, peeking through a window as I passed by a house. Past the glass opened a lively scene of a family, who was spending their time enjoyably together. I didn’t have a family or a home; it had been many years since I had lost them, and I had been tasting the bitter loneliness of an orphan ever since. 
+
+
+Fighting against the constant pangs in my stomach, I searched desperately for something salvageable, but the winter cold erased it all. My numb fingertips had lost their colour, resembling icicles. In the summer there would be mounds of trash (quite a blessing, I must say), but now there was a layer of acidic snow which covered it; my frostbitten hands wouldn't dare touch it. The mansions which were easy targets for theft in the summer were locked shut, and when I begged to their owners, they would only coldly hurl insults at me. Stuck in a loop of pleading then rejection, my efforts proved fruitless.
+
+
+Despite the harsh conditions, I have miraculously been able to survive many winters. However, the cold hit hard this year, and I have not secured any sort of sustenance for the past few days. Aching from starvation, my body began to head down a steep path of weakening. Hobbling down the street, I thought of resting in an alley and I crashed down into the snow. I attempted to regain my strength, but just as I close my eyes, an unfamiliar voice entered my ears. The voice was soft, its fibres made of gentleness; it brought to me a peculiar peace in my heart. As I opened my eyes to view the carrier of this wonderful voice, a beautiful woman, slightly older than me, was revealed.
+
+
+This woman hurriedly carried me to her home, and we arrived minutes later. There, three figures were waiting: two who seemed to be the woman’s parents, sitting with worried eyes, and the remaining, young boy who was likely her brother. I suppose a fourth entity had also awaited me: a fragrance of the coals mixing with the aroma of a fresh loaf of bread.  The parents brought water, while the brother brought clothes for me to wear. Then, the woman pulled a chair from under the table, decorated only with a single loaf of bread—certainly not enough to sufficiently nourish everyone; they had taken me in without a single consideration for their own circumstances. I uttered words of gratefulness, incomparable to my true feelings of appreciation in my heart, and the entire family simply smiled back. After exhausting my thankful thoughts, the mother told me to dig in with a hand gesture, and I devoured my bread slice without a care for my manners, out of pure hunger. After the meal was finished, the image I had viewed hours earlier had suddenly been brought right in front of me. There was the mother and father, talking and laughing, their high and low creating a conversational melody. There was the woman, interrupting her hyperactive brother who was playing, telling him many times to calm down—a playful intermittence. Amid this liveliness, I tasted the sweet joy of family, which I had longed for many years. Time passed in an instant, and by the time I was attacked by drowsiness, the moon was high in the sky. As I lay down on the straw bed, I basked in the heat of the fireplace and waited only mere seconds before good rest had crossed my path. My dreams that night were filled with warmth.
+
+
+When I opened my eyes, I had returned to the dark alley. A dream…? A thin blanket had been placed over me, and beside me was a letter that was illegible due to the powder snow that had melted on it, but I didn’t care if I couldn’t read it. Hell, I didn’t care if I starved to death. I didn’t care what happened; there existed a human in real life who had cared for someone as miserable as I was. The emotions of care and kindness gushed out of the letter, and a wave of warmth travelled throughout my body. A stream of tears of gratitude flowed down my cheek, and I smiled with the little strength that remained in me. I figure my face was quite a mess. 
+
+
+I closed my eyes once again, resting peacefully. 
+My body was warm. 
+So was the night, oh so very warm… 
+
+
+End
+
 ___
-### December 23 -  <a name="23"></a>
-<img src="/icons/.png" width="50" height="50" />
+### December 23 - 豆川うめ <a name="23"></a>
+<img src="/icons/豆川うめ.jpg" width="50" height="50" />
 
 ___
 ### December 24 -  <a name="24"></a>
