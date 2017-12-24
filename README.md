@@ -9,8 +9,8 @@
 | **3**         | 4        | 5         | 6         | 7          | 8        | **9**        |
 | **10**        | [11](#11)| [12](#12) | [13](#13) | [14](#14)  | [15](#15)| [**16**](#16)|
 | [**17**](#17) | [18](#18)| [19](#19) | [20](#20) | [21](#21)  | [22](#22)| [**23**](#23)|
-| [**24**](#24) | 25       | 26        | 27        | 28         | 29       | **30**       |
-| **31**        |          |           |           |            |          |              |
+| [**24**](#24) | [25](#25)| [26](#26) | [27](#27) | [28](#28)  | [29](#29)| [**30**](#30)|
+| [**31**](#31) |          |           |           |            |          |              |
 
 
 ### Week One・第１週目
@@ -43,8 +43,24 @@
   
   [**Dec 23** - 豆川うめ](#23)
     
-  [**Dec 24** - ](#24)
+  [**Dec 24** - Ryry](#24)
   
+### Week Three・第３週目
+
+  [**Dec 25** - ](#25)
+  
+  [**Dec 26** - ](#26)
+  
+  [**Dec 27** - ](#27)
+  
+  [**Dec 28** - ](#28)
+  
+  [**Dec 29** - ](#29)
+  
+  [**Dec 30** - ](#30)
+    
+  [**Dec 31** - ](#31)
+
 
 ## Week One・第１週目 
 
@@ -391,6 +407,44 @@ ___
 ### December 23 - 豆川うめ <a name="23"></a>
 <img src="/icons/豆川うめ.jpg" width="50" height="50" />
 
+I have been playing backgammon for 4 years. Backgammon is a board game for 2 players. Each player has 15 pieces on the board. They take turn to roll the dice and move the pieces. The first player who put all the pieces to the goal is the winner.
+
+I love backgammon so much because I can make friends with the opponents through the games. I roll the dice, we gaze at them, and we feel happy or unhappy. This experience makes us closer.
+
+One day, I took part in a open tournament of backgammon. There were many players from overseas. I had a game with a woman from the UK. At first I had been nervous because I spoke English after a long time. However, I was getting calm down while chatting across the board. She is so good player that she beat me and finally won the first prise! She is also kind and friendly. She gave me some advice on the game and told me where to play backgammon in the UK.
+
+Of course I felt disappointed to losing the game, but I was happy that she enjoyed the games that day and made good memories in Japan. I would like to play backgammon with her again in the UK and hopefully beat her.
+
 ___
 ### December 24 -  <a name="24"></a>
-<img src="/icons/.png" width="50" height="50" />
+<img src="/icons/Ryry.jpg" width="50" height="50" />
+
+
+## Week Three・第３週目
+___
+### December 25 - <a name="25"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 26 - <a name="26"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 27 - <a name="27"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 28 - <a name="28"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 29 - <a name="29"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 30 - <a name="30"></a>
+<img src="/icons/.jpg" width="50" height="50" />
+
+___
+### December 31 - <a name="31"></a>
+<img src="/icons/.jpg" width="50" height="50" />
