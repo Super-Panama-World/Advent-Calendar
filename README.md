@@ -381,7 +381,7 @@ ___
 Cold was the night.
 
 
-The winter wind fought against me, relentlessly blowing without a care for my state. The streets were dimly lit by the candlelights which leaked from the houses that lined the street; amid the howling of the passing gale, I feebly wandered along the path. I trod on, peeking through a window as I passed by a house. Past the glass opened a lively scene of a family, who was spending their time enjoyably together. I didn’t have a family or a home; it had been many years since I had lost them, and I had been tasting the bitter loneliness of an orphan ever since. 
+The winter wind fought against me, relentlessly blowing without a care for my state. The streets were dimly lit by the candlelights which leaked from the houses that lined it; amid the howling of the passing gale, I feebly wandered along the path. I trod on, peeking through a window as I passed by a house. Past the glass opened a lively scene of a family, who was spending their time enjoyably together. I didn’t have a family or a home; it had been many years since I had lost them, and I had been tasting the bitter loneliness of an orphan ever since. 
 
 
 Fighting against the constant pangs in my stomach, I searched desperately for something salvageable, but the winter cold erased it all. My numb fingertips had lost their colour, resembling icicles. In the summer there would be mounds of trash (quite a blessing, I must say), but now there was a layer of acidic snow which covered it; my frostbitten hands wouldn't dare touch it. The mansions which were easy targets for theft in the summer were locked shut, and when I begged to their owners, they would only coldly hurl insults at me. Stuck in a loop of pleading then rejection, my efforts proved fruitless.
