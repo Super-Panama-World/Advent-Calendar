@@ -51,7 +51,7 @@
   
   [**Dec 26** - Kakashi](#26)
   
-  [**Dec 27** - ](#27)
+  [**Dec 27** - Ew](#27)
   
   [**Dec 28** - ](#28)
   
@@ -504,8 +504,8 @@ ___
 「はい、はい。」  
 
 ___
-### December 27 - <a name="27"></a>
-<img src="/icons/.jpg" width="50" height="50" />
+### December 27 - Ew<a name="27"></a>
+<img src="/icons/Ew.jpg" width="50" height="50" />
 
 ___
 ### December 28 - <a name="28"></a>
